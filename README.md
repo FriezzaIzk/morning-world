@@ -1,2 +1,8 @@
 # morning-world
-hi! aku lagicoba hal baru lagi
+hi! aku lagi coba hal baru lagi
+
+sebenernya aku gatau ini sedang apa.
+tadi aku kerja laporan dan tiba tiba teralihkan
+pengen nyoba ini buat kalian
+
+ehehehe
